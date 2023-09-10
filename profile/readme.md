@@ -1,5 +1,5 @@
-This is Kelvin's organisation. 
+This is Kelvin's organisation. I'm the king here.
 
 :honeybee::honeybee::honeybee::honeybee::honeybee::honeybee::honeybee:
 
-Expecting big things.
+No one else may join.
